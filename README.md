@@ -1,1 +1,1 @@
-# 3-Natural-Language-Moguls
+# 3-Natural-Language-People
